@@ -1,6 +1,6 @@
 Quiche Veggie du Chef.
 
-J'aimerais tester une nouvelle recette de quiche végétarienne. Essayez ça et dites-moi ce que vous en pensez. C'est pas de moi, ça vient de Marmiton. Je crois que tout est bon sauf un truc... je n'arrive plus à me rappeler combien de fleurs comestibles je dois mettre. 174 c'est trop je pense, ça fait déborder la table. Si vous avez une idée, n'hésitez pas. 
+J'aimerais tester une nouvelle recette de quiche végétarienne. Essayez ça et dites-moi ce que vous en pensez. C'est pas de moi, ça vient du Chef. Je crois que tout est bon sauf un truc... je n'arrive plus à me rappeler combien de fleurs comestibles je dois mettre. 174 c'est trop je pense, ça fait déborder la table. Si vous avez une idée, n'hésitez pas. 
 
 Ingredients.
 10 g sel
