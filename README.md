@@ -17,8 +17,7 @@ Method.
 Put comte rape into 1st mixing bowl.
 Put champignons cuits into 1st mixing bowl. 
 Put creme fraiche into 1st mixing bowl. 
-Put oeufs into 2nd mixing bowl. 
-Add dry ingredients to 2nd mixing bowl.
+Put oeufs into 2nd mixing bowl.
 Put echalotes into 2nd mixing bowl. 
 Add sel to 2nd mixing bowl.
 Remove muscade from 2nd mixing bowl.
